@@ -2,7 +2,8 @@
 - 👀 Eu gosto de agricultura nos e do agro? agro e tudoooooo
 - 🌱Estou terminando o ensino médio
 - 💞️ estou estudando pensamento computacional
-- 📫 
+- 
+- 📫 https://myoctocat.com/build-your-octocat/
 
 <!---
 luizinho02062006/luizinho02062006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
