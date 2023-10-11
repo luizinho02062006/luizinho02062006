@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luizinho02062006
-- 👀 Eu gosto de agricultura
+- 👀 Eu gosto de agricultura nos e do agro? agro e tudoooooo
 - 🌱Estou terminando o ensino médio
 - 💞️ estou estudando pensamento computacional
 - 📫 
